@@ -1,0 +1,1 @@
+# erettsegi-tetelek-amit-nem-vesz-le-valaki-csak-azert-mert-bantjak-a-szavak-a-pici-peniszet
